@@ -1,3 +1,4 @@
+- :wave: My name is Montana
 - 🔭 I’m currently working on The Odin Project
 - 📫 How to reach me: mountagnew@gmail.com
 - 😄 Pronouns: he/him
