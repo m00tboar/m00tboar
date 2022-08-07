@@ -1,0 +1,4 @@
+- 🔭 I’m currently working on The Odin Project
+- 📫 How to reach me: mountagnew@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: 100% completion on Red Dead 2 
